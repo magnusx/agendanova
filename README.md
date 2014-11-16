@@ -1,4 +1,4 @@
 agendanova
 ==========
 
-Music &amp; Art Tank
+Music, Art &amp; Think Tank
